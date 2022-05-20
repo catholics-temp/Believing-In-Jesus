@@ -53,7 +53,7 @@
 
 #### [POSTSCRIPT](POSTSCRIPT.md)	[295]
 
-#### [APPENDIXES](APPENDIXES.md)
+#### APPENDIXES
 
 #### [Appendix A: Believing in Jesus and the RCIA](Appendix%20A%3A%20Believing%20in%20Jesus%20and%20the%20RCIA.md)	[296]
 
