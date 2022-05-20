@@ -4,6 +4,6 @@
   
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;May all who read this book come to know, love and follow Jesus as deeply, intensely and generously as Leonard Foley did. 
 
-Daniel Kroger <sub>O.F.M.</sub>, 
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Daniel Kroger <sub>O.F.M.</sub>, 
 <br>
-*<sub>Publisher, St. Anthony Messenger Press</sub>*
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;*<sub>Publisher, St. Anthony Messenger Press</sub>*
