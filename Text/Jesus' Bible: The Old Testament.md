@@ -23,3 +23,35 @@ IF YOU CAN GET THROUGH THIS FIRST CHAPTER, THE REST OF THE BOOK MAY BE comparati
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; The Bible cannot, therefore, be read as merely a list of dusty dates and long-ago battles. It must be experienced by someone who has outgrown the childhood fallacy that the world started when he or she was born, and who now puts an adult meaning to the question, "Where do I come from?" This question found a thrilling answer in the consciousness of Jesus, and we can all share his experience by making the story of the Bible our own story. 
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; In this chapter we try to combine a basic consideration of the of Israel's history in chronological order with the books in which these events (and their meaning) are recorded. 
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; The contents page of your Bible will reveal that there arc three kinds of books in the Old Testament: historical books tracing God's relationship with a people; prophetic books recording the prophets' warnings in the face of the people's sin, as well as their consoling assurances; and the wisdom books, prayerful meditations on human life. {5}
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Many kinds of writing—literary genres—fill these books: narrative, poetry, prophecy, fiction and a strange thing called apocalyptic (more about that later) . In order to understand what the writers are trying to tell us, we will have to take that into account. We also must consider what's going on in their time and culture, and how they express themselves (see the *Catechism of the Catholic Church*, #110) . 
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Why? Well, imagine trying to explain a "Big Mac attack" to an Israelite facing Assyrian spears or "Lions devour Patriots, 55—0" to a first-century Roman Christian. 
+
+<b>HISTORICAL BOOKS </b>
+
+The first five books of the Bible are called the Pentateuch ("five books") or the Torah ("the Law") , which Tevye in *Fiddler on the Roof* longed to contemplate in retirement. The first of these, Genesis, deals with the origin of the human race and, more importantly, of the chosen people. 
+
+<b>GENESIS.</b> For our present purpose, let us summarize the first eleven chapters of Genesis as follows: God creates man and woman and gives them divine friendship along with a world in which to enjoy it. But Adam and Eve choose to be little gods themselves; they abandon God's friendship and their innocence and their honesty. 
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Made to be like God, humans decided to play at being God, thumbing their noses at the Creator and refusing to be who they are—creatures. The "tree of the knowledge of good and evil" symbolizes the limits of creaturehood (see *Catechism*, #311, 398). 
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Untruth and unlove seep through the world like poison, until people are so absorbed in their own selfishness that no one can understand or communicate with others. Everyone seems to speak his or her own "foreign" language. Humanity plunges from Paradise to Babel. 
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; This is not merely an earthly setback or tragedy; it is the total collapse of life itself—physical and spiritual. "[T]he moment you eat from it [the forbidden tree] you are surely to die" (Genesis 2:17b) Humankind embraced sin and begot death. {6}
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; *Abraham, Our Father in Faith*. Now God intervenes in a special way. About nineteen hundred years before Christ, God chooses a man, Abraham, who lived in what is now Iraq, to be the father of a new people. Through this man and his household, God enters human history in a new way and begins a special self-revelation. Abraham is the seed of the Savior to come as God begins to unveil, in Paul's words, "the mystery hidden from ages and from generations past" (Colossians 1:26a) . 
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; It may sound odd to us that God "intervenes" in our history by his special relationship with Abraham and his people, Israel. After all, God "has the whole world in his hands" and is "here" already, supporting every atom and spirit in existence. Nevertheless, it is true to say that God now begins to unfold an eternal plan that will be fulfilled by definite historical events beginning with Abraham and "ending" with Jesus. 
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; God's purpose is to prepare (and at the same time save from sin) an "acceptable" people. God must free human beings without forcing them to love—which, ultimately God does by a free act of love in Jesus' death. 
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; God's basic purpose is liberation. We are by inheritance and by choice enslaved to our own pride and passion. God must continually throw light on both real beauty and real ugliness, let us suffer the logic of sin (called punishment) and bring us, painfully, to what should be a commonsense decision—to choose to live. 
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Israel, symbol of humankind, has a monotonous history of being loved, of responding with sin, of being punished, of repenting, of being forgiven, of being unfaithful again, on and on. God has a refreshing history of being God: one who loves faithfully. 
+
+EXODUS. The Book of Exodus ("a way out") is the story of Israel's liberation from physical and spiritual slavery in Egypt—the model of our ultimate liberation in Jesus. We join his "exodus" through death to life. 
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; God strikes the Egyptians but passes over the homes of the Israelites who have put the blood of a lamb on the doorposts of their homes all partaken of a meal of its flesh. Now, under the leadership of Moses (foreshadowing Jesus), they go (perhaps as a straggling mass of refugees) through the water of the Red Sea to freedom. 
