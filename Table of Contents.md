@@ -1,4 +1,4 @@
-**                | CONTENTS |
+         | CONTENTS |
 
 FOREWORD TO THE SIXTH EDITION   [vii]
 
