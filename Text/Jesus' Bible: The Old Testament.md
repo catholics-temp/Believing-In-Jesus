@@ -52,7 +52,7 @@ The first five books of the Bible are called the Pentateuch ("five books") or th
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Israel, symbol of humankind, has a monotonous history of being loved, of responding with sin, of being punished, of repenting, of being forgiven, of being unfaithful again, on and on. God has a refreshing history of being God: one who loves faithfully. 
 
-EXODUS. The Book of Exodus ("a way out") is the story of Israel's liberation from physical and spiritual slavery in Egypt—the model of our ultimate liberation in Jesus. We join his "exodus" through death to life. 
+<b>EXODUS.</b> The Book of Exodus ("a way out") is the story of Israel's liberation from physical and spiritual slavery in Egypt—the model of our ultimate liberation in Jesus. We join his "exodus" through death to life. 
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; God strikes the Egyptians but passes over the homes of the Israelites who have put the blood of a lamb on the doorposts of their homes all partaken of a meal of its flesh. Now, under the leadership of Moses (foreshadowing Jesus), they go (perhaps as a straggling mass of refugees) through the water of the Red Sea to freedom. 
 
