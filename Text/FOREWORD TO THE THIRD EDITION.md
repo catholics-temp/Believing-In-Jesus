@@ -1,1 +1,9 @@
+# FOREWORD TO THE THIRD EDITION
 
+FATHER LEONARD FOLEY <sub>O.F.M.</sub>, DIED EASTER SUNDAY MORNING, 1994, IN HIS sixty-second year as a Franciscan and his fifty-fourth as a priest. He was very conscious of his sharing in the suffering, death and resurrection of Jesus, the paschal mystery. 
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; The previous October he had spent his eightieth birthday in the hospital recovering from surgery to remove a tumor from his spine. Before and after that hospitalization, one of his main projects was revising Believing in Jesus. He wanted it to be completely consistent with the new Catechism of the Catholic Church. He wanted to study the new Catechism personally and revise Believing in Jesus accordingly. When I brought him an early English translation of the Catechism, he was as excited as if I had given him a new car. 
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; The passion of Leonard's life was telling people about God, Jesus, the church, God's love for them. He was distressed by the misshapen imaoes some people had of God and their false ideas of what God expected of them. From years of preaching parish missions, hearing confessions and doing spiritual direction, he knew the faulty ideas, unfounded guilt, fears and scruples that tortured people. "Poor people!" was one of Leonard's frequent exclamations. 
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; The driving desire of his life was to communicate the gospel to "ordinary people," "real people," like his Aunt Mamie. Especially after Vatican Il, he frequently spoke at adult education programs and enjoyed the give and take with people. As editor of St. Anthony Messenger he gave new direcLion to the magazine. He was the founding editor of Homily Helps and Weekday Homily Helps. He wrote, edited or contributed to fifteen books for St. Anthony Messenger Press, and wrote many articles and homilies. The many Catholic Updates and Youth Updates he wrote sold literally millions of copies. 
