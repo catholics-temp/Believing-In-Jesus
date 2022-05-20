@@ -54,8 +54,8 @@
 
 #### APPENDIXES
 
-##### *Appendix A*: [Believing in Jesus *and the* RCIA](Text/Appendix%20A%3A%20Believing%20in%20Jesus%20and%20the%20RCIA.md)	<sub>[296]</sub>
+##### *Appendix A*: [Believing in Jesus *and the* RCIA](Text/Believing%20in%20Jesus%20and%20the%20RCIA.md)	<sub>[296]</sub>
 
-##### *Appendix B*: [*Recommended Resources*](Text/Appendix%20B%3A%20Recommended%20Resources.md)	<sub>[303]</sub>
+##### *Appendix B*: [*Recommended Resources*](Text/Recommended%20Resources.md)	<sub>[303]</sub>
 
 #### [INDEX](Text/INDEX.md)	<sub>[318]</sub>
