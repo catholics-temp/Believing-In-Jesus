@@ -72,4 +72,18 @@ The people all answered together, "We will do everything that the Lord has told 
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; *The Covenant*. God gave his people the Ten Commandments not as a burden but as a way of keeping the Sinai Covenant. They were, when not unfaithful, happy to have this guide on how to be God's people. In the Book of Exodus, the list of the commandments is followed by several chapters of guidance and specific details on observing God's way. 
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; *The Blood*. It is important to realize what blood meant to the Israelites: Blood was life. So, at the dramatic liturgy ratifying the covenant, Moses took the blood of an animal and poured half of it on the stone altar— 
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; *The Blood*. It is important to realize what blood meant to the Israelites: Blood was life. So, at the dramatic liturgy ratifying the covenant, Moses took the blood of an animal and poured half of it on the stone altar—representing God—and threw the other half on the assembled people, saying the words Jesus would fulfill: 'This is the blood of the covenant which the Lord has made with you" (Exodus 24:8b). {8} 
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; It is *one blood* on the altar and on the people. God and the people are united. The blood of the covenant is the symbol of the marriage of God and the chosen, of their union, their oneness. "I will be your God, and Mill be Inv people" (Leviticus 26: 12b). 
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; *Covenant Love*. In the generations after Moses, the covenant remained a focus of Israel's life. Beneath all the customs and ceremonies that gradually developed and in spite of continuing unfaithfulness, the Israelites, like spoiled children, could always be sure of one thing: They might sin and wander, but God is faithful. They used a special word for this love: *hesed*. It is a love that cannot be worn down, the love of kinship that is simplv faithful (see *Catechism*, #214). 
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; This love goes beyond all expectation, all just dues. It pours itself out in generosity. Best of all, it is unstoppable, unquenchable. The more God's children sin, the more God pursues them with mercy. Yahweh is faithful to the spouse who is continually adulterous. 
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; *Passover*. It is extremely important to understand three things Jesus did: He lived the covenant perfectly, he celebrated the Passover and he transformed the "old" covenant into a new and eternal one. His death and resurrection were his own passover-exodus, and they became the exodus for all humankind. 
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Why did Jesus celebrate the Passover? First, because he was an observant Jew. The Jews had always said, down the centuries, that God's covenant is remade with each new generation. With their usual children-of-the-house boldness, they said, "[N]ot with our fathers did he make this covenant, but with us, all of us who are alive here this day" (Deuteronomy 5:3b). 
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Every year at Passover each household procured a lamb, one year old and without blemish. They ate it with loins girt, sandals on their feet and staff in hand—like those who are in flight (see Exodus 12:11). 
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Our Passover is Jesus, in whose blood the new and eternal covenant is made. Jlis blood is "upon us" and in us, symbolizing a true union between God and us. We cal his flesh as those who are in flight from slavery. We drink his blood, sealing the covenant.  
