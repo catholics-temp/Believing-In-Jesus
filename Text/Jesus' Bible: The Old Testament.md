@@ -55,3 +55,21 @@ The first five books of the Bible are called the Pentateuch ("five books") or th
 EXODUS. The Book of Exodus ("a way out") is the story of Israel's liberation from physical and spiritual slavery in Egypt—the model of our ultimate liberation in Jesus. We join his "exodus" through death to life. 
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; God strikes the Egyptians but passes over the homes of the Israelites who have put the blood of a lamb on the doorposts of their homes all partaken of a meal of its flesh. Now, under the leadership of Moses (foreshadowing Jesus), they go (perhaps as a straggling mass of refugees) through the water of the Red Sea to freedom. 
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; The Exodus, together with the covenant that followed at Sinai, is the central event of Israel's history. {7}
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; We cannot exaggerate the importance of these events for the Jews and, ultimately, for us. What the death and resurrection of Jesus is to us, the Exodus-covenant was to the chosen people. It foreshadows our own exodus, in Jesus, from slavery to freedom, from death to life, again in the blood of the Lamb. It foretells the family meal of the Eucharist and the "drowning" and "rising" in the water of baptism. 
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; The Exodus is not a simple affair. The Israelites wander in the Sinai desert for forty years—sometimes faithful, sometimes grumbling. Yahweh gives them signs of divine presence and protection. As always, Yahweh was a hidden God who could be seen only by faith. 
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; In the desert, Israel was alone with God. There was no place to run and hide. The desert is the symbol of death and of human loneliness. There we must each decide either to die or to survive in the only way possible: by total surrender to God. 
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; *The Ten Commandments*. At the mountain of Sinai, God makes a covenant with the Israelites. Through Moses, God says, 
+
+> You have seen for yourselves how I treated the Egyptians and how I bore you up on eagle wings and brought you here to myself. Therefore, if you hearken to my voice and keep my covenant, you shall be my special possession, dearer to me than all other people.... You shall be to me a kingdom of priests, a holy nation.... (Exodus 19:4b—5a, 6a) 
+
+The people all answered together, "We will do everything that the Lord has told us" (Exodus 24:3b). 
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; *The Covenant*. God gave his people the Ten Commandments not as a burden but as a way of keeping the Sinai Covenant. They were, when not unfaithful, happy to have this guide on how to be God's people. In the Book of Exodus, the list of the commandments is followed by several chapters of guidance and specific details on observing God's way. 
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; *The Blood*. It is important to realize what blood meant to the Israelites: Blood was life. So, at the dramatic liturgy ratifying the covenant, Moses took the blood of an animal and poured half of it on the stone altar— 
