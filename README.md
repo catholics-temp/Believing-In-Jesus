@@ -53,8 +53,10 @@
 
 #### [POSTSCRIPT](POSTSCRIPT.md)	[295]
 
-#### [APPENDIXES](APPENDIXES.md)	[296]
+#### [APPENDIXES](APPENDIXES.md)
 
-#### [Appendix A: Believing in Jesus and the RCIA Appendix B: Recommended Resources](Appendix%20A%3A%20Believing%20in%20Jesus%20and%20the%20RCIA%20Appendix%20B%3A%20Recommended%20Resources.md)	[303]
+#### [Appendix A: Believing in Jesus and the RCIA](Appendix%20A%3A%20Believing%20in%20Jesus%20and%20the%20RCIA.md)	[296]
+
+#### [Appendix B: Recommended Resources](Appendix%20B%3A%20Recommended%20Resources.md)	[303]
 
 #### [INDEX](INDEX.md)	[318]
