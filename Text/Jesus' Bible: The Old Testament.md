@@ -87,3 +87,17 @@ The people all answered together, "We will do everything that the Lord has told 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Every year at Passover each household procured a lamb, one year old and without blemish. They ate it with loins girt, sandals on their feet and staff in hand—like those who are in flight (see Exodus 12:11). 
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Our Passover is Jesus, in whose blood the new and eternal covenant is made. Jlis blood is "upon us" and in us, symbolizing a true union between God and us. We cal his flesh as those who are in flight from slavery. We drink his blood, sealing the covenant.  
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; *The Law: Powerless to Save*. The Torah—the Law—cannot save. As Saint Paul keeps on saying, it is merely our teacher (see Galatians 3:24). It is powerless, except to reveal all the obstacles of sin between us and God. {9}
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Our reverence for the Ten Commandments should never deceive us into thinking that we can save ourselves by observing them. Saint Paul spent most of his Christian life insisting on this. We have the Law, but we cannot observe it by ourselves. We are not self-righteous (though that is the word we use for people who think they are). God leads us, chosen people, through glory and misery, sin and faith, to a growing consciousness that we need God absolutely.
+
+<b>LEVITICUS.</b> The third book of the Bible gets its name from Levi, head of the priestly tribe. The book gives many directives for sacrifice and ritual. The central theme is this: "Be holy, for I, the Lord, your God, am holy" (Leviticus 19:2b; see also 11:44; 20:26).
+
+<b>NUMBERS.</b> The Book of Numbers (so called because it records two censuses of the Hebrew people) continues the story of the journey begun in Exodus. It describes the life of the Israelites for thirty-eight years in the desert, from their coming to Sinai to their arrival at the border of the promised land.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; For their murmuring, God prolongs the people's stay in the desert while simultaneously deepening the covenant relationship and preparing them to be a missionary nation.
+
+<b>DEUTERONOMY.</b> The name means "Second Law. " It is not really a new Law, but a repeating and completing of the Law given on Mount Sinai. Moses, in a series of discourses (similar to those of Jesus in Matthew's Gospel), presents the theme of covenant renewal, of living religion. He exhorts and threatens his people, reminding them of the special claim the Lord  has on them.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; The events described in this book took place between the end of the desert journey and the crossing of the Jordan into the promised land under Joshua. The book was written alter the Israelites had lived in the protuised land for centuries and is presented as a kind of testatment of Moses.
