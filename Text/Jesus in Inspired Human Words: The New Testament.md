@@ -11,11 +11,12 @@ DROP A STONE INTO WATER, AND THE RIPPLES RUN IN CIRCLES TO THE EDGE OF the pond.
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; The apostles did not "preach"; they "proclaimed"—that is, gladly declared, as a fact, the Good News of Jesus (see *Catechism*, #571). They were heralds, hurrying into cities and towns to announce the fact that the slaves are freed. The Good News may be summarized like this:
 
 <pre>
-     The prophecies are fulfilled; the new age has dawned. The Messiah, of the House of David, has come. He is Jesus of
-     Nazareth, who was baptized by John, did mighty works by the power of God, suffered and died for us, rose from the dead,
-     was exalted at God's right hand, will come again in judgment. Repent and be baptized for the forgiveness of sin. 
-     (Summary by Patrick Fannon in *The Four Gospels*; see examples of the apostolic proclamation in 
-     Acts 2:22-24, 32—33; 3:12—26; 10:36-43.)
+     The prophecies are fulfilled; the new age has dawned. The Messiah, of the House of David, has come. 
+     He is Jesus of Nazareth, who was baptized by John, did mighty works by the power of God, 
+     suffered and died for us, rose from the dead, was exalted at God's right hand, 
+     will come again in judgment. Repent and be baptized for the forgiveness of sin. 
+     (Summary by Patrick Fannon in *The Four Gospels*; see examples of 
+     the apostolic proclamation in Acts 2:22-24, 32—33; 3:12—26; 10:36-43.)
 </pre>
 
 <b>NEW TESTAMENT WRITINGS</b>
