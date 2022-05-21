@@ -101,3 +101,105 @@ The people all answered together, "We will do everything that the Lord has told 
 <b>DEUTERONOMY.</b> The name means "Second Law. " It is not really a new Law, but a repeating and completing of the Law given on Mount Sinai. Moses, in a series of discourses (similar to those of Jesus in Matthew's Gospel), presents the theme of covenant renewal, of living religion. He exhorts and threatens his people, reminding them of the special claim the Lord  has on them.
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; The events described in this book took place between the end of the desert journey and the crossing of the Jordan into the promised land under Joshua. The book was written alter the Israelites had lived in the protuised land for centuries and is presented as a kind of testatment of Moses.
+
+<b>JOSHUA.</b> This book shows God's faithfulness in giving the Israelites the inheritance of land he had promised. God acts through Joshua, and the chosen people cross the Jordan and begin the gradual capture of the promised land. At this point Israel renews the covenant with Yahweh. {10}
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; The history of the conquest of Canaan is a foretelling of the spiritual conquest of the world under the leadership of Jesus (Joshua is an earlier form of the name *Jesus*) . Under Jesus, the New Moses, there will be a new covenant, a new Mount Sinai, a new Passover, a new Passover Lamb, a new commandment.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; The book ofJoshua may be summed up by these words,
+
+> In the future, when the children among you ask their fathers what these stones mean [twelve stones from the Jordan], you shall inform them, 'Israel crossed the Jordan here on dry ground.' For the Lord, your God, dried up the waters of the Jordan in front of you until you crossed over, just as the Lord, your God, had done at the Red Sea...; in order that all the peoples of the earth may learn that the hand of the Lord is mighty, and that you may fear the Lord, your God, forever (Joshua 4:21b-23b, 24)
+
+<b>JUDGES.</b> This book takes its name from the "judges," twelve military heroes sent by God to lead the people in the interval between the death of Joshua and the institution of the monarchy. The book shows that Israel's fortunes go up and down according to whether or not they obey God's Law. When they rebel, they are overcome by pagan nations; when they repent, God raises up new leaders to liberate them.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; It is the same cycle again: from faithfulness to unfaithfulness, to punishment, to repentance, to forgiveness and deliverance.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; *Kingship—Under or Instead of God?* Eventually Israel decides it wants earthly kings instead of being a theocracy, a people ruled directly by God. Three pairs of books (each one a single scroll) describe the period: 1 and 2 Samuel; 1 and 2 Kings; 1 and 2 Chronicles.
+
+<b>1 AND 2 SAMUEL.</b> The books of Samuel span the history of a century (about 1100—1000 B.C.E.) and relate a series of episodes centering around the persons of Samuel, Saul and David. Central to our interest is the oracle of Nathan (2 Samuel 7) which promises David an eternal dynasty. This is the basis for the development of the idea of an earthly Messiah. {11}
+
+<b>I AND 2 KINGS.</b> The two books of Kings cover similar ground, but also extend to the most tragic happening in Israel's history: the exile in 587 B.C.E., about which more will follow in a moment.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; A central figure of the Old Testament is King David, who foreshadows the King to come. He succeeds in forming the confederation of twelve tribes into a united kingdom and setting up a new capital, Jerusalem. God renews his eternal covenant with this king. (David sins, as movies have emphatically pointed out, but does penance with equal vigor.)
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; The kings were, as was to be expected, a poor substitute for the rule of God. Consequently, the prophets (about whom more will follow) spend a large part of their careers denouncing both moral and religious aberrations. A later biblical writer looks back over history and says sadly of the kings, "Except for David, Hezekiah and Josiah, / they all were wicked" (Sirach 49:4).
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; In 930 B.C.E. David's united kingdom is split into two: in the north, the ten tribes of Israel; in the south, Judah (whose people come to be called "Jews") , consisting of the two tribes of Judah and Benjamin—the tiny remnant that will eventually fulfill God's promises.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; In 721 B.C.E. Assyrian invaders conquered the northern kingdom of Israel, deporting its citizens and recolonizing the land with foreigners. The descendants of these Israelite-pagan marriages were the Samaritans of Jesus' day. Thus the expression: "the lost tribes of Israel." It is important to note that the sacred writer says, "The king of Assyria then deported the Israelites. This came about because they had not heeded the warning of the Lord, their God, but violated his covenant, not heeding and not fulfilling the commandments of Moses, the servant of the Lord" (2 Kings 18:11a, 12).
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; The terrors of exile also came to the southern kingdom (587 B.C.E.) under the armies of Babylon. Again the sacred writer sees the meaning:
+
+> Early and often did the Lord, the God of their fathers, send his messengers to them, for he had compassion on his people and his dwelling place. But they mocked the messengers of God, despised his warnings, and scoffed at his prophets, until the anger of the Lord against his people was so inflamed that there was no remedy. Then he brought up against them the king of the Chaldeans, who slew their young men in their own sanctuary building. . . . They burnt the house of God, tore down the walls of Jerusalem, set all its palaces afire.... Those who escaped the sword he carried captive to Babylon.... All this was to fulfill the word of the Lord.... (2 Chronicles 36:15—17a, 19a, 20a, 21a) {12}
+
+<b>1 AND 2 CHRONICLES.</b> The two books of Chronicles treat the same period as the two pairs of books just described, but from a different viewpoint. They cover the period from Samuel to the return from exile in 538 B.C.E.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Solomon is presented as an ideal king, second only to David. His great achievement is building the temple and promoting a magnificent liturgy of sacrifice, prayer and praise. The ideal of one people united in the worship of the true God in Jerusalem is achieved.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; But at the end, in the return from the agony of exile (a second Exodus) the *remnant* knows the political greatness of Israel is past. They have had a national "holocaust." They will now be a people under God or they will be nothing. The past will show the way to the future: There will be emphasis on David's blessed line, on Jerusalem as the divinely established place of worship. But the way into the future is not easy. When the remnant returns they find the "people of the land"—descendants of those who had escaped being carried into exile—have mixed with foreigners and developed a new religion; hence, tension.
+
+<b>PROPHETIC BOOKS</b>
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; The word prophet means "one who speaks for" ("in the place of" or "on behalf of"). Prophets communicate with God in prayer, visions, and, by God's grace, understand the meaning of God's self-revelation and the horror of the sin that repudiates it. They stand up coutageously against sin and injustice, whether in king or slave. They warn of God's punishment and, when it befalls, bring God's consolation. They demand faithfulness and promise deliverance.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; They attack all violations of the covenant: sexual imnmorality, social injustice, human degradation. They are the conscience of Israel.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Moses may be considered a prophet, and also Elijah, thc "troubler of Israel." Sonne prophets, like Nathan, are written about in the historical books. Other prophets, or their followers, recorded their own vision and message. {13}
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; The eighteen prophetic books are the work of the so-called "classical", or writing, prophets. They cover a period from Amos's denunciation of the sins of Israel in the north around 750 B.C.E. to the hopeful book of Daniel, written in the second century before Christ.
+
+<b>AMOS.</b> Let us spend a few moments with Amos, a shepherd from the southern kingdom who was sent north sometime between 780 and 740 B.C.E. The people of Israel are not even aware how deeply their conduct offends a holy God, who must therefore say,
+
+<pre>
+     I hate, I spurn your feasts,
+       I take no pleasure in your solemnities;
+     ...
+     Away with your noisy songs! (Amos 5:21, 23a)
+</pre>
+
+Like the prophets after him, Amos speaks of the "remnant" that God will save—though it will be like a shepherd rescuing from the mouth of the lion "a pair of legs or the tip of an ear of his sheep" (Amos 3: 12b).
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; He gives a new meaning to an expression that runs throughout the Bible: "the day of the Lord." To a suffering people, it meant the day God would judge the enemies of Israel and vindicate his people. But now Amos reminds the chosen people that it will also be a day of gloom for them—not just their enemies. For those who are sinners, unfaithful, it will be a day of judgment when God destroys their pride.
+
+<b>HOSEA.</b> Like Amos, Hosea thunders in the north, and at about the same time (during the later years of the reign of Jeroboam II—786—746 B.C.E.). Yet he is one of the most touching examples of God's mercy. His own marriage to the prostitute Gomer becomes a symbol of God's marriage relationship with Israel. After three children, Gomer reverts to being a prostitute. But Hosea seeks her out and takes her back—as no Jewish husband could or would do—as an example of the way God pursues and welcomes back an unfaithful people.
+
+<b>ISAIAH.</b> The writings of several prophets appear in the one book we now call Isaiah. Only the first segment (Isaiah 1—39)—and not all of that—is the work of the actual person Isaiah, who prophesied between the years 742 and 687 B.C.E. Isaiah 40—55, sometimes called Second Isaiah, is generally attributed to an anonymous poet at the end of the Babylonian exile (around 538 B.C.E.). Isaiah 56—66 was written at a still later period by followers of the prophet. {14}
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Excerpts from the book of Isaiah are read fifty-seven times in the three year cycle of Sunday readings—an indication of the importance these prophets still hold for us. They are used extensively in Advent and Lent.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; *First Isaiah*. Isaiah is the greatest of the prophets. He lives at a crucial time in salvation history, his career covering the years 742—687 B.C.E. After the north is destroyed, Judah in the south has its turn on center stage. It is to Judah that Isaiah preaches.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; His great vision is of the holiness of God—and the horror of human sinfulness in contrast. The frightful abyss between God's holiness and human sin overwhelms Isaiah. He denounces both north and south for seeking security in military alliances; he summons Judah to faith in God as its only hope.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; But again, in the tradition of Amos, Isaiah foresees that only a remnant will be saved to see the desert bloom and God's splendor:
+
+<pre>
+     Here is your God,
+       he comes with vindication;
+     With divine recompense
+       he comes to save you. (Isaiah 35:4b)
+</pre>
+
+*Second Isaiah.* Isaiah 40—55 is called "The Book of Consolation" and was written toward the end of the Babylonian exile. The anonymous author sees that the chosen people will be liberated; the captives will return. The prophet rebuilds their shattered morale and paints a vision of a glorious future:
+
+<pre>
+     It is I, I, who wipe out,
+       for my own sake, your offenses;
+     your sins I remember no more. (Isaiah 43:25)
+     Can a mother forget her infant,
+       be without tenderness for the child of her womb? 
+     Even should she forget,
+       I will never forget you. (Isaiah 49: 15) 
+</pre> {15}
+
+Very prominent in Second Isaiah is the promise to the remnant. There will be a small number of humble and faithful people who will be God's new Israel, with whom God will make a new covenant. They are purified by the sorrows of exile. They are the "poor" and the "poor in spirit" whom Jesus praised. From our perspective we can see Mary, the flower of Israel's faith, standing at their head.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; The four "Songs of the Suffering Servant" are an important feature of Second Isaiah (42:1-4; 49:1-7; 50:4-11; 52:13-53:12) The Servant is, first, the motley remnant of the poor who listen faithfully to the prophet's words; and, second, he is also an individual figure who will save the people from their sins. Isaiah 53 reads like a description of the passion of Jesus.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Still, when the return from exile is complete, the ideal Israel is not fully restored, God must still create a new heaven and a new earth. Someone will come who will be the true Servant.
+
+<b>THE MESSIAH.</b> Much of the teaching of Isaiah, as well as the other prophets, converges on the Messiah who is to come. The figure takes form slowly, very slowly, over the centuries.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; The word *Messiah* means "anointed," that is, commissioned like a king, priest or prophet. The Messiah will fulfill Israel's destiny, save his people, protect them. He will lead his people to delight in the fear of the Lord. He willjudge—that is, vindicate—the poor and "with the breath of his lips he shall slay the wicked" (Isaiah 11:4c).
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Coming in the line of King David, he will create a holy nation, which will be "a royal priesthood, a holy nation" (see Exodus 19:6; also 1 Peter 2:9). The inner core of his work is to eliminate sin and restore humankind to intimacy with God. Isaiah sees his work as centered in the temple. All nations will come there, as to the center of the earth. He heartens his fellow Jews with a vision:
