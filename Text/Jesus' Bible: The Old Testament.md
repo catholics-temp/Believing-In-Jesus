@@ -130,9 +130,9 @@ The people all answered together, "We will do everything that the Lord has told 
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; The terrors of exile also came to the southern kingdom (587 B.C.E.) under the armies of Babylon. Again the sacred writer sees the meaning:
 
-> Early and often did the Lord, the God of their fathers, send his messengers to them, for he had compassion on his people and his dwelling place. But they mocked the messengers of God, despised his warnings, and scoffed at his prophets, until the anger of the Lord against his people was so inflamed that there was no remedy. Then he brought up against them the king of the Chaldeans, who slew their young men in their own sanctuary building. . . . They burnt the house of God, tore down the walls of Jerusalem, set all its palaces afire.... Those who escaped the sword he carried captive to Babylon.... All this was to fulfill the word of the Lord.... (2 Chronicles 36:15—17a, 19a, 20a, 21a) {12}
+> Early and often did the Lord, the God of their fathers, send his messengers to them, for he had compassion on his people and his dwelling place. But they mocked the messengers of God, despised his warnings, and scoffed at his prophets, until the anger of the Lord against his people was so inflamed that there was no remedy. Then he brought up against them the king of the Chaldeans, who slew their young men in their own sanctuary building. . . . They burnt the house of God, tore down the walls of Jerusalem, set all its palaces afire.... Those who escaped the sword he carried captive to Babylon.... All this was to fulfill the word of the Lord.... (2 Chronicles 36:15—17a, 19a, 20a, 21a)
 
-<b>1 AND 2 CHRONICLES.</b> The two books of Chronicles treat the same period as the two pairs of books just described, but from a different viewpoint. They cover the period from Samuel to the return from exile in 538 B.C.E.
+<b>1 AND 2 CHRONICLES.</b> The two books of Chronicles treat the same period as the two pairs of books just described, but from a different viewpoint. They cover the period from Samuel to the return from exile in 538 B.C.E. {12}
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Solomon is presented as an ideal king, second only to David. His great achievement is building the temple and promoting a magnificent liturgy of sacrifice, prayer and praise. The ideal of one people united in the worship of the true God in Jerusalem is achieved.
 
@@ -190,9 +190,9 @@ Like the prophets after him, Amos speaks of the "remnant" that God will save—t
        be without tenderness for the child of her womb? 
      Even should she forget,
        I will never forget you. (Isaiah 49: 15) 
-</pre> {15}
+</pre> 
 
-Very prominent in Second Isaiah is the promise to the remnant. There will be a small number of humble and faithful people who will be God's new Israel, with whom God will make a new covenant. They are purified by the sorrows of exile. They are the "poor" and the "poor in spirit" whom Jesus praised. From our perspective we can see Mary, the flower of Israel's faith, standing at their head.
+Very prominent in Second Isaiah is the promise to the remnant. There will be a small number of humble and faithful people who will be God's new Israel, with whom God will make a new covenant. They are purified by the sorrows of exile. They are the "poor" and the "poor in spirit" whom Jesus praised. From our perspective we can see Mary, the flower of Israel's faith, standing at their head. {15}
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; The four "Songs of the Suffering Servant" are an important feature of Second Isaiah (42:1-4; 49:1-7; 50:4-11; 52:13-53:12) The Servant is, first, the motley remnant of the poor who listen faithfully to the prophet's words; and, second, he is also an individual figure who will save the people from their sins. Isaiah 53 reads like a description of the passion of Jesus.
 
