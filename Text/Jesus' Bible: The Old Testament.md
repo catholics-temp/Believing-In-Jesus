@@ -203,3 +203,149 @@ Very prominent in Second Isaiah is the promise to the remnant. There will be a s
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; The word *Messiah* means "anointed," that is, commissioned like a king, priest or prophet. The Messiah will fulfill Israel's destiny, save his people, protect them. He will lead his people to delight in the fear of the Lord. He willjudge—that is, vindicate—the poor and "with the breath of his lips he shall slay the wicked" (Isaiah 11:4c).
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Coming in the line of King David, he will create a holy nation, which will be "a royal priesthood, a holy nation" (see Exodus 19:6; also 1 Peter 2:9). The inner core of his work is to eliminate sin and restore humankind to intimacy with God. Isaiah sees his work as centered in the temple. All nations will come there, as to the center of the earth. He heartens his fellow Jews with a vision:
+
+<pre>
+     The people who walked in darkness 
+       have seen a great light. (Isaiah 9:1a)
+     For a child is born to us
+     ...
+       His dominion is vast 
+         and forever peaceful. (Isaiah 9:5a, 6)
+</pre>
+
+<b>JEREMIAH.</b> Jeremiah was called to be God's prophet about 627 B.C.E. For forty years—through the reigns of Judah's last five kings—he warned of coming disaster and begged king and people to turn back to God. He was ignored, abused, arrested and publicly disgraced. In 587 B.C.E. the Babylonian army destroyed Jerusalem and took the most influential people into exile. Many people fled to nearby countries. Jeremiah stayed behind with the remnant in Judah, but later was forced into exile in Egypt and according to one tradition was murdered there. {16} 
+
+<pre>
+     Speaking for the Lord, Jeremiah says,
+
+     Two evils have my people done:
+       they have forsaken me, the source of living waters;
+     They have dug for themselves cisterns,
+       broken cisterns, that hold no water. (Jeremiah 2:13)
+</pre>
+
+But Jeremiah has words of hope of the eventual victory of God: "The days are coming, says the LORD, when I will make a new covenant with the house of Israel and the house of Judah. I will place my law within them, and write it upon their hearts; I will be their God, and they shall be my people" (Jeremiah 31:31, 33b).
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Jeremiah's influence was greater after his death than before. The exiles read and meditated on his lessons, and his influence can be seen Ezekiel and Second Isaiah.
+
+<b>EZEKIEL.</b> Ezekiel becomes a prophet while he suffers among the deportees in Babylon (c. 587 B.C.E.). He is often called the "prophet of the exile." He helps the exiles accept the destruction of Jerusalem, pointing out, like his fellow prophets, that the people's past and present sins are wreaking their necessary fulfillment. Perhaps the saddest words in the Bible are those of Ezekiel 10:18: "Then the glory of the Lord left the threshold of the temple...."
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; But, finally, Ezekiel offers a sure hope. He begins to announce God's promise of a new covenant and describes a new and ideal Israel rising from the graveyard of Babylon (the dry bones come together in Ezekiel 37). But salvation will be the work of God, not man. God will create a new heart and a new spirit in the people (see Ezekiel 36:26). The temple will be purified, and God will be present among the people (see Ezekiel 43:1-7). {17}
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; *After the Exile Until the Time of Christ.* Just as the people had been liberated from Egypt in the Exodus, so eventually the small remnant is delivered from captivity in Babylon in 538 B.C.E. They are a chastened people. They discover the Torah anew and become more convinced than ever that they are God's chosen ones.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; The exile has made them a people with an unshakable faith in the one God. They no longer have earthly kings, only God, whose representative is the high priest.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; The Jews are never again a nation of power. But after the exile they are benevolently treated by Cyrus the Persian. A very modest new temple is built by 515 B.C.E.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; The Persians retain control until the time of Alexander the Great. With him begins a "Greek period" whose influence continues into New Testament times, even though the land was under the Ptolemies of Egypt in the third century B.C.E. and the Seleucids of Syria until the time of the Maccabees one hundred years later.
+
+<b>JONAH.</b> This much debated book was written some time between 400 and 200 B.C.E. It is not historical narrative, but didactic fiction, a story designed to teach a lesson. The lesson is this: God loves all people, not just the Jews. When Jonah is sent to prophesy to the pagan Ninevites, they turn to God; but the chosen people sometimes refuse. It is a parable of mercy aimed against narrowness and self-righteousness.
+
+<b>EZRA AND NEHEMIAH.</b> The transformation of the Jewish people after the exile is important for our understanding of Jesus. This is the period of the Restoration. The two men most responsible for this reorganization of Jewish life are Ezra and Nehemiah. (The books attributed to these men fall into the category of historical books, but are treated here for the sake of chronology.)
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Ezra provides spiritual unity. Without his firmness, Judaism has no chance of resisting absorption by Greek culture. He sets the tone for a postexilic community characterized by fidelity to the Torah. {18}
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Nehemiah, like Ezra, helps Judaism maintain its identity during difficult days in the postexilic restoration.
+
+<b>DANIEL.</b> This book represents a special kind of biblical writing called "apocalyptic." It looks to a direct intervention of God as the only way the world will be transformed. The wfiting abounds in symbols, often difficult to understand—parts of the body, animals, colors, numbers. Apocalyptic writers foresee a cataclysm: The heavens will open and the future will crash into the present.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; In the New Testament the book of Revelation (the Apocalypse) is written in this style. Jesus uses this form in his description of the Day of the Lord (see Mark 13).
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; The book of Daniel was born during the persecution of the Jews in the second century before Jesus. It firmly asserts that God is the Lord of history. Deliverance and glory are coming; God's people should stay strong amid temptation and suffering.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; In the seventh chapter the author speaks of
+
+<pre>
+     One like a son of man coming,
+       on the clouds of heaven;
+     ...
+     His dominion is an everlasting dominion
+       that shall not be taken away,
+     his kingship shall not be destroyed. (Daniel 7:13a, 14b)
+</pre>
+
+<b>1 AND 2 MACCABEES.</b> Again, for the sake of chronology, we insert a book classified as part of the historical writings.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Judas Maccabee (and later his brothers) led a Jewish revolt against the Seleucid kings, who were persecuting the Jews. It was a courageous reaction to the attempt to suppress Judaism in Palestine in the second century before Christ. For a time the Jews again have religious and political independence. Again it is hoped that the salvation of the Jews will involve the creation of a Jewish state with political autonomy from foreign conquerors.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; The Roman power enters Palestine in 63 B.C.E. Herod the Great, a Jew favored by the Romans, is declared "King of Judea," reigning from 37 to 4 B.C.E. Herod's son Herod Antipas rules Galilee until 39 C.E., but Roman governors, called procurators, hold the real power. {19}
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; One of them is named Pontius Pilate.
+
+<b>WISDOM BOOKS</b>
+
+A third type of literature in the Old Testament is the wisdom books. These are meditations on human experience and the problems of life: good and evil, death and life, happiness and suffering. They are concerned with moral information—that is, how to live in God's presence. There are seven of them, comprising about one-fourth of the Old Testament.
+
+<b>PSALMS.</b> The psalms are the prayers of Israel and continue to be the prayers of the Catholic Church today. They are a collection of 150 religious poems, about half of them attributed to King David. Some were undoubtedly written during the exile or even later, until about 300 B.C.E.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; These are the prayers Jesus said with all his family and friends. They are an intimate part of the church's prayer today and should receive our special attention.
+
+<b>PROVERBS.</b> This is an anthology of didactic poetry aimed at helping the young and inexperienced along the road to wisdom; consideration is also given those who desire advanced training. Solomon is the author of at least part of the collection.
+
+<b>JOB.</b> The book of Job, written between the seventh and fifth centuries B.C.E., is a drama in poetic form that treats the problem of the suffering of the innocent.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Why do the good suffer? There is no answer, if one wants to know why God did not create a world free of suffering. God wants instead humble and trustful acceptance of divine providence and deep faith in God's steadfast covenant love.
+
+<b>THE SONG OF SONGS.</b> Written after the exile, this is a portrayal of ideal love between man and woman. This love is a symbol of the love between the Lord and the chosen people.
+
+<b>ECCLESIASTES.</b> The author, writing about 300 B.C.E., considers such human ambitions and aspirations as the pursuit of wealth, pleasure, luxury knowledge, wisdom, bravery. Are they good or bad? He concludes: "[V]anity of vanities! All things are vanity!" (Ecclesiastes 1:2b). The meaning: These values are not deserving of a wise person's full time and energy because the human spirit cannot be fulfilled by any earthly values— human, social or material. {20}
+
+<b>SIRACH.</b> This catechism of good conduct, cast in the traditional categories of sin and virtue, was written about 200—175 B.C.E. How can one be wise for God? The author treats humility, giving alms, filial piety, sincerity, friendship, pride and presumption, prudence and temperance.
+
+<b>WISDOM.</b> This exhortation, addressed to Jews scattered in lands far away from Palestine, urges them to be faithful and warns them not to be taken in by the pagan immorality of their surroundings. It is the Old Testament book written last (about 100 B.C.E.).
+
+<b>SUMMING UP</b>
+
+Over a period of two thousand years, God forms a people. God chooses a missionary group, liberates them from slavery in the great Exodus from Egypt and makes a covenant with them at Sinai. They waver between faithfulness and sin, between majestic worship in the temple and adulterous running after idols.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; They go through the cycle of friendship, rebellion, punishment and reconciliation over and over again—a paradigm of the life of the church. They—or at least a faithful remnant—are purified in the fires of oppression and exile. Reduced to human helplessness, they long for the Messianic Age. Some look for a new time of prosperity, others for the great king who will rival the glory and power of David and lead them to freedom, reestablishing the kingdom.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Among the poor of God who wait is a girl of Nazareth, the virgin womb of Israel, prepared for by prophet, priest and king. She, the flower of the "poor of Yahweh," the remnant, sums up all her people's longings and the love of those who have kept faith. She learns of the Passover lamb, the covenant, the promise.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; And we can imagine her praying these words of Isaiah, not knowing the full depth of the words which had come down to her: {21}
+
+<pre>
+     I rejoice heartily in the LORD,
+       in my God is the joy of my soul;
+     For he has clothed me with a robe of salvation,
+       and wrapped me in a mantle ofjustice,
+     Like a bridegroom adorned with a diadem,
+       like a bride bedecked with her jewels.
+     As the earth brings forth its plants,
+       and a garden makes its growth spring up,
+     So will the Lord GOD make justice and praise
+       spring up before all the nations. (Isaiah 61: 10—11)
+</pre>
+
+<b>REFLECTION DISCUSSION STARTERS</b>
+
+l) What does it mean to say the Bible is not simply a record of events but also an interpretation of these events?
+
+2)Reflect on the ways the God of the chosen people is described by Old Testament writers. How is this God similar to or different from the God of your experience?
+
+3)The Exodus—Israel's liberation from physical and spiritual slavery in Egypt—is a model for our ultimate liberation in Jesus. Discuss how the Passover-Exodus parallels and foreshadows the death-resurrection of Jesus.
+
+4)What is the covenant relationship God makes with the Israelites? Discuss the love God offers in this relationship and the response of the people. Do you see your own relationship to God as one of covenant?
+
+5)What, in general, was the role of the prophets for the chosen people? Does any one prophet speak particularly to you? Why?
+
+6)What are the concerns of the wisdom books? Are your prayers as candid as those found in the book of Psalms?
+
+7)Discuss the recurring theme of oppression and exile in the life of the chosen people. Have you ever felt oppressed or in exile in your own life? What freed you?
+
+<b>SCRIPTURE READINGS</b>
+
+In covering the entire Old Testament, this chapter can provide only a brief view of its contents. You may wish to examine more closely some of the books discussed. Four passages that are significant as both a reference to a faithful remnant of the people and a foreshadowing of a savior are the "Songs of the Suffering Servant": Isaiah 42:1-4; 49:1-7; 50:4-11; 52:13-53:12. {22}
+
+<b>SUPPLEMENTARY MATERIAL[^1]</b>
+
+*<b>Catholic Updates:</b>* "The Bible and Prayer: Themes from the Synod" by Michael Guinan <sub>O.F.M.</sub>; "Choosing and Using a Bible: What Catholics Should Know," by Ronald Witherup <sub>s.s.</sub>; "A Popular Guide to Reading the Bible," by Macrina Scott <sub>O.S.F.</sub>; "How to Understand the Bible: Examining the Tools of Today's Scripture Scholars," by Norman Langenbrunner; "The Whole Bible at a Glance: Its 'Golden Thread' of Meaning" and "Finding Your Way Through the Old Testament," both by Virginia Smith.
+
+*<b>Scripture From Scratch:</b>* "The Bible From Square One," written by Elizabeth McNamer; "Interpreting the Bible: The Right and the Responsibility," by Sandra Schneiders <sub>I.H.M.</sub>; "The Use and Abuse of the Bible," by Ronald D. Witherup <sub>s.s</sub>; "Mapping the Biblical Journey" and "Exodus and Exile: Shaping God's People," both by Virginia Smith; "From Mount Sinai to the Sermon on the Mount: The Laws of Moses and Jesus," by Alfred McBride <sub>O.PRAEM.</sub>; "From Spirit to Holy Spirit in the Old Testament," by Leonard Doohan; "The Dead Sea Scrolls," by Elizabeth McNamer.
+
+*<b>CD:</b>* *New Great Themes of Scripture*, by Richard Rohr <sub>O.F.M.</sub>
+
+*<b>Books:</b>* *The Great Themes of Scripture: Old Testament*, by Richard Rohr <sub>O.F.M.</sub>, and Joseph Martos; *The Bible Made Easy: A Book-by-Book Introduction*, by Timothy Schehr; *When God Speaks: Reflections on the First Readings Of the Sunday Lectionary*, by Daniel E. Pilarczyk.
+
+[^1]: In the Supplementary Material sections throughout this book, *Updates* refers to issues of *Catholic Update*, published by St. Anthony Messenger Press. *Scripture Scratch*, is a St. Anthony Messenger Press newsletter. Books, CDs and DVDs listed are available from St. Anthony Messenger Press. Study guides can be downloaded http://catalog.AmericanCatholic.org/guide.
